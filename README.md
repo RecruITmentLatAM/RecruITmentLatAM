@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RecruITmentLatAM
-- 👀 I’m interested in found new and spacial talent
+- 👀 I’m interested in find new and spacial talent
 - 🌱 I’m currently learning as IT RECRUITER how is the best form to find candidates...
 - 💞️ I’m looking to collaborate on trends about Recruitment, booelanos, tips to find the company of your interest
 - 📫 How to reach me team@recruitment.com.co 
